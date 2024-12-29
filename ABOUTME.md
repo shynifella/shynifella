@@ -1,0 +1,7 @@
+- 👋 Hi, I’m Shynifella, but you can also call me Camiron 
+- 👀 I’m interested in programming, music
+- 🌱 I’m currently learning Ruby programming language
+- 💞️ I’m looking to collaborate with anyone who wants (minimal knowledge, basic english, and etiquette is required) 
+- 📫 How to reach me shynifella37@gmail.com
+- 😄 Pronouns: He / him / his
+- ⚡ Fun fact: I am single
